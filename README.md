@@ -3,7 +3,7 @@
 
 <img width="711" height="69" alt="image" src="https://github.com/user-attachments/assets/52b13f4c-4e06-4084-9811-dc3e7d83b985" />
 
-      🔊 I love my friends lowkey                   ༒ MAKE SOME ROOM, WHAT GOES BOOM?!
+      🔊 I love my friends lowkey                   ༒ [Main Acoount](https://github.com/Asphyxixate) 
 
       🔉 I'm too much alike this dude              ༒ Wind Breaker so tuff breh
 
