@@ -3,11 +3,11 @@
 
 <img width="711" height="69" alt="image" src="https://github.com/user-attachments/assets/52b13f4c-4e06-4084-9811-dc3e7d83b985" />
 
-      🎧 I love my friends lowkey                    ༒ MAKE SOME ROOM, WHAT GOES BOOM?!
+      🔊 I love my friends lowkey                   ༒ MAKE SOME ROOM, WHAT GOES BOOM?!
 
-      🎧 I'm too much alike this dude              ༒ Wind Breaker so tuff breh
+      🔉 I'm too much alike this dude              ༒ Wind Breaker so tuff breh
 
-      🎧 Don't C+H unless a friend nyuh                ༒ [Caard](https://github.com/TalkMiriSugo) [Straw page](https://github.com/TalkMiriSugo) <sub>These dont work yet
+      🔈 Don't C/H unless a friend nyuh                  ༒ [Caard](https://github.com/TalkMiriSugo) [Straw page](https://github.com/TalkMiriSugo) <sub>These dont work yet
                                
 <img width="711" height="80" alt="image" src="https://github.com/user-attachments/assets/efbe6236-accf-4c9e-a244-3cbe9083f498" />
         
