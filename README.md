@@ -1,19 +1,22 @@
-   <img width="711" height="279" alt="image" src="https://github.com/user-attachments/assets/dad830e0-03a2-4066-9c4e-38bd5293c69d" />
+<img width="711" height="435" alt="Untitled17_20260523013947" src="https://github.com/user-attachments/assets/450c7abe-c5b9-4b71-9fa7-145688dd7a1d" />
+
 
 <img width="711" height="69" alt="image" src="https://github.com/user-attachments/assets/52b13f4c-4e06-4084-9811-dc3e7d83b985" />
 
-            🦋 Yoshida Hirfumi Lover btw                ༒ What does this guy even do
+      🎧 I love my friends lowkey                    ༒ MAKE SOME ROOM, WHAT GOES BOOM?!
 
-            🦋 I like playing the Piano too                ༒ I love CSM its so bad
+      🎧 I'm too much alike this dude              ༒ Wind Breaker so tuff breh
 
-            🦋 His name don't even mean anything        ༒ [Caard](https://github.com/TalkMiriSugo) [Straw page](https://github.com/TalkMiriSugo) <sub>These dont work yet
+      🎧 Don't C+H unless a friend nyuh                ༒ [Caard](https://github.com/TalkMiriSugo) [Straw page](https://github.com/TalkMiriSugo) <sub>These dont work yet
                                
 <img width="711" height="80" alt="image" src="https://github.com/user-attachments/assets/efbe6236-accf-4c9e-a244-3cbe9083f498" />
         
         
-> I want to change, Is this my choice or am I just walking in circles? <sub> listen to The Cure's disintegration ablum btw
+> Grace in her lace and her stocking (stocking)\
+> Carrying her bass (Carrying her bass), she really likes to get rocking (rocking)\
+> Oh, darling Grace (Oh, darling Grace), are we going to get rocking? (rocking)\
+> Grace, are we going to get rocking? (rocking)
 
-> "I'm not about to worship you, but I am grateful to you with every passing day!\
-> In the Chainsaw Man Church, I'm truly free! I realized something! My body, my brain...\
-> I ought to use them for myself!"
-<img width="711" height="1067" alt="Miri Sugo _Chainsaw man_" src="https://github.com/user-attachments/assets/dffd7676-0483-4f31-a295-ac4d8c3cc89e" />
+> "I'm always relying on others. But... They're still relying on me, too.\
+> That's why I'll do whatever I can to live up to that trust."
+<img width="711" height="1000" alt="Untitled18_20260523014634" src="https://github.com/user-attachments/assets/874e9fa3-7d13-427e-bb24-43978844ff38" />
